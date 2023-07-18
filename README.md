@@ -4,7 +4,6 @@
 
 - 🔭 I’m currently looking for full time oppertunities
 - 🤔 I’m looking for help with growing my problem solving skills
-- 💬 Ask me about ...
 - 📫 How to reach me: mianibrahim1994@gmail.com
 - ⚡ Fun fact: I'm a Lego enthusiast
 
